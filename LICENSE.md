@@ -1,4 +1,4 @@
-
+best king legacy Script offers the most advanced king legacy Script, with unlimited stamina and custom skins. Perfect for dominating any match.
 
 
 
